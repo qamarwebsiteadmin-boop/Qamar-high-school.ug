@@ -1,0 +1,1 @@
+# Qamar-high-school.ug
